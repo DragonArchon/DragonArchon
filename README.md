@@ -3,9 +3,9 @@
 
 Top 5 favorite games
 
-1) Warframe
+1) Dark Souls (and other From Software titles)
 2) Monster Hunter
-3) Dark Souls (and other From Software titles)
+3) Warframe
 4) Destiny
 5) Fire Emblem
 
