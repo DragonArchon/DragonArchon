@@ -7,7 +7,7 @@ Top 5 favorite games
 2) Monster Hunter
 3) Warframe
 4) Destiny
-5) Fire Emblem
+5) Dragon's Dogma
 
 - 🌱 I’m currently learning computer science.
 - 💞️ I’m looking to collaborate on indie games and mods (after I graduate college, lol).
